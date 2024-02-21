@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ABearCoding
-- 👀 I’m interested in God, my family, chess, & learning code.
+- 👀 I’m interested in God, my family, chess, photography, & learning code.
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on anything & everything lol
 - 📫 How to reach me abearemailing@gmail.com
